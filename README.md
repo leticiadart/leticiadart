@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @leticiadart
+- 👀 I’m interested in studies
+- 🌱 I’m currently learning computing
+- 💞️ I’m looking to collaborate on help society
+- 📫 How to reach me, my number is 43 99837917
+- 😄 Pronouns: she
+- ⚡ Fun fact: study progamming65w
